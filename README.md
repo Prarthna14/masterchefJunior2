@@ -1,1 +1,5 @@
-# masterchefJunior2
+If you've ever had churros dipped in chocolate, you know what this recipe is all about. Churros are perfectly crunchy, cinnamon sugar-dusted sticks of goodness, dunked in creamy chocolate—a dream come true. But turning your waffles into churros for breakfast? That's heaven.
+
+It may sound complicated, but it couldn't be easier. Simply prepare waffles like you normally would, brush with melted butter, then sprinkle with cinnamon sugar. Drizzle on some melted chocolate and you've got a perfect, decadent breakfast for a special weekend.
+
+Kids love them, too! Cut the waffles into sticks for an adorable, hand-held breakfast. Little ones can dip the sticks into the melted chocolate and feel like they're having dessert for breakfast! They can also help with brushing the waffles with butter and dusting them with the cinnamon sugar, for an interactive experience they'll ask for again and again.
